@@ -1,4 +1,4 @@
-# 🏢 Konten Google Business Profile — LINETOGEL
+﻿# 🏢 Konten Google Business Profile — WHY
 
 **Platform:** Google Business Profile (sebelumnya Google My Business)  
 **Target:** Local SEO Indonesia, pencarian "situs toto", "toto online terpercaya", "pasaran toto"  
@@ -10,7 +10,7 @@
 
 ### Nama Bisnis
 ```
-LINETOGEL — Situs Toto Online Terpercaya
+WHY — Situs Toto Online Terpercaya
 ```
 
 ### Kategori Utama
@@ -38,7 +38,7 @@ Indonesia
 ## 📄 DESKRIPSI BISNIS (750 Karakter Maksimal)
 
 ```
-LINETOGEL adalah situs toto online terpercaya di Indonesia yang menyediakan pasaran terlengkap mulai dari Singapore, Hongkong, Sydney, Macau, Cambodia hingga pasaran internasional lainnya. Kami menawarkan bayaran kemenangan tertinggi tanpa potongan, proses deposit mulai dari 10 ribu rupiah, serta withdraw cepat yang diproses dalam hitungan menit. Didukung customer service profesional 24 jam siap membantu kapan saja. Keamanan data member menjadi prioritas utama kami dengan sistem enkripsi terkini. Daftar sekarang dan raih kemenangan besar Anda bersama LINETOGEL.
+WHY adalah situs toto online terpercaya di Indonesia yang menyediakan pasaran terlengkap mulai dari Singapore, Hongkong, Sydney, Macau, Cambodia hingga pasaran internasional lainnya. Kami menawarkan bayaran kemenangan tertinggi tanpa potongan, proses deposit mulai dari 10 ribu rupiah, serta withdraw cepat yang diproses dalam hitungan menit. Didukung customer service profesional 24 jam siap membantu kapan saja. Keamanan data member menjadi prioritas utama kami dengan sistem enkripsi terkini. Daftar sekarang dan raih kemenangan besar Anda bersama WHY.
 ```
 
 **Karakter count:** ±680 karakter ✅ (aman di bawah 750)
@@ -59,7 +59,7 @@ Senin – Minggu: Buka 24 Jam
 
 ### Website
 ```
-https://why-six-drab.vercel.app/
+https://why-pi.vercel.app/
 ```
 
 ### Nomor Telepon
@@ -76,15 +76,15 @@ https://wa.me/628XXXXXXXXXX
 
 ### Telegram
 ```
-t.me/linetogelofficial
+t.me/whyofficial
 ```
 
 ### Sosial Media Links (tambahkan di GBP)
 ```
-• Instagram: instagram.com/linetogelofficial
-• TikTok: tiktok.com/@linetogelofficial
-• Facebook: facebook.com/linetogelofficial
-• Twitter/X: twitter.com/linetogelofficial
+• Instagram: instagram.com/whyofficial
+• TikTok: tiktok.com/@whyofficial
+• Facebook: facebook.com/whyofficial
+• Twitter/X: twitter.com/whyofficial
 ```
 
 ---
@@ -92,58 +92,58 @@ t.me/linetogelofficial
 ## ❓ FAQ — GOOGLE BUSINESS Q&A
 
 ### FAQ 1
-**Q:** Apakah LINETOGEL situs toto online terpercaya di Indonesia?
+**Q:** Apakah WHY situs toto online terpercaya di Indonesia?
 
-**A:** Ya, LINETOGEL adalah situs toto online terpercaya yang telah melayani ribuan member di seluruh Indonesia. Kami menjamin pembayaran kemenangan penuh tanpa potongan dan proses withdraw cepat. Keamanan data member dilindungi dengan sistem enkripsi terkini.
+**A:** Ya, WHY adalah situs toto online terpercaya yang telah melayani ribuan member di seluruh Indonesia. Kami menjamin pembayaran kemenangan penuh tanpa potongan dan proses withdraw cepat. Keamanan data member dilindungi dengan sistem enkripsi terkini.
 
 ---
 
 ### FAQ 2
-**Q:** Bagaimana cara daftar di LINETOGEL?
+**Q:** Bagaimana cara daftar di WHY?
 
-**A:** Cara daftar sangat mudah. Kunjungi website resmi kami di https://why-six-drab.vercel.app/, klik tombol DAFTAR, isi form pendaftaran dengan data lengkap dan valid, lalu submit. Akun Anda langsung aktif dan siap digunakan. Proses pendaftaran gratis dan hanya membutuhkan waktu kurang dari 2 menit.
+**A:** Cara daftar sangat mudah. Kunjungi website resmi kami di https://why-pi.vercel.app/, klik tombol DAFTAR, isi form pendaftaran dengan data lengkap dan valid, lalu submit. Akun Anda langsung aktif dan siap digunakan. Proses pendaftaran gratis dan hanya membutuhkan waktu kurang dari 2 menit.
 
 ---
 
 ### FAQ 3
-**Q:** Apa saja pasaran toto yang tersedia di LINETOGEL?
+**Q:** Apa saja pasaran toto yang tersedia di WHY?
 
-**A:** LINETOGEL menyediakan pasaran toto terlengkap di Indonesia, termasuk Singapore, Hongkong, Sydney, Macau, Cambodia, Taiwan, Japan, Korea, dan masih banyak lagi. Semua pasaran dapat diakses 24 jam dengan jadwal result yang jelas dan transparan.
+**A:** WHY menyediakan pasaran toto terlengkap di Indonesia, termasuk Singapore, Hongkong, Sydney, Macau, Cambodia, Taiwan, Japan, Korea, dan masih banyak lagi. Semua pasaran dapat diakses 24 jam dengan jadwal result yang jelas dan transparan.
 
 ---
 
 ### FAQ 4
-**Q:** Berapa minimal deposit di LINETOGEL?
+**Q:** Berapa minimal deposit di WHY?
 
-**A:** Minimal deposit di LINETOGEL hanya Rp10.000 (sepuluh ribu rupiah). Kami menerima berbagai metode pembayaran termasuk transfer bank (BCA, BNI, BRI, Mandiri), e-wallet (GoPay, OVO, Dana), dan pulsa. Proses deposit instan, saldo langsung masuk ke akun Anda.
+**A:** Minimal deposit di WHY hanya Rp10.000 (sepuluh ribu rupiah). Kami menerima berbagai metode pembayaran termasuk transfer bank (BCA, BNI, BRI, Mandiri), e-wallet (GoPay, OVO, Dana), dan pulsa. Proses deposit instan, saldo langsung masuk ke akun Anda.
 
 ---
 
 ### FAQ 5
-**Q:** Berapa lama proses withdraw di LINETOGEL?
+**Q:** Berapa lama proses withdraw di WHY?
 
-**A:** Proses withdraw di LINETOGEL sangat cepat, rata-rata diproses dalam waktu 5–15 menit setelah permintaan diajukan. Tim customer service kami siap 24 jam untuk memastikan setiap withdraw diproses tanpa hambatan. Tidak ada potongan biaya apapun untuk withdraw.
+**A:** Proses withdraw di WHY sangat cepat, rata-rata diproses dalam waktu 5–15 menit setelah permintaan diajukan. Tim customer service kami siap 24 jam untuk memastikan setiap withdraw diproses tanpa hambatan. Tidak ada potongan biaya apapun untuk withdraw.
 
 ---
 
 ### FAQ 6
-**Q:** Apakah LINETOGEL punya customer service?
+**Q:** Apakah WHY punya customer service?
 
-**A:** Ya, LINETOGEL memiliki tim customer service profesional yang siap melayani 24 jam sehari, 7 hari seminggu. Anda dapat menghubungi kami melalui live chat di website, WhatsApp, atau Telegram. Semua pertanyaan dan kendala akan ditangani dengan cepat dan ramah.
+**A:** Ya, WHY memiliki tim customer service profesional yang siap melayani 24 jam sehari, 7 hari seminggu. Anda dapat menghubungi kami melalui live chat di website, WhatsApp, atau Telegram. Semua pertanyaan dan kendala akan ditangani dengan cepat dan ramah.
 
 ---
 
 ### FAQ 7
 **Q:** Apakah ada bonus untuk member baru?
 
-**A:** Tentu! LINETOGEL menyediakan bonus new member untuk setiap pendaftaran baru. Selain itu ada bonus deposit, cashback mingguan, dan program referral. Cek halaman promosi di website kami untuk informasi bonus terbaru. Syarat dan ketentuan berlaku.
+**A:** Tentu! WHY menyediakan bonus new member untuk setiap pendaftaran baru. Selain itu ada bonus deposit, cashback mingguan, dan program referral. Cek halaman promosi di website kami untuk informasi bonus terbaru. Syarat dan ketentuan berlaku.
 
 ---
 
 ### FAQ 8
-**Q:** Apakah data pribadi saya aman di LINETOGEL?
+**Q:** Apakah data pribadi saya aman di WHY?
 
-**A:** Keamanan data member adalah prioritas utama kami. LINETOGEL menggunakan sistem enkripsi SSL terkini untuk melindungi seluruh data pribadi dan transaksi member. Kami tidak pernah membagikan data member kepada pihak ketiga. Privasi Anda 100% terjamin.
+**A:** Keamanan data member adalah prioritas utama kami. WHY menggunakan sistem enkripsi SSL terkini untuk melindungi seluruh data pribadi dan transaksi member. Kami tidak pernah membagikan data member kepada pihak ketiga. Privasi Anda 100% terjamin.
 
 ---
 
@@ -155,7 +155,7 @@ Google Business Profile mendukung postingan rutin (Google Posts) yang muncul lan
 
 ### Post 1 — Welcome / Brand Awareness
 ```
-🆕 SELAMAT DATANG DI LINETOGEL!
+🆕 SELAMAT DATANG DI WHY!
 
 Situs toto online terpercaya dengan pasaran terlengkap dan bayaran tertinggi di Indonesia kini hadir di Google.
 
@@ -166,10 +166,10 @@ Situs toto online terpercaya dengan pasaran terlengkap dan bayaran tertinggi di 
 
 Kunjungi website kami dan daftar sekarang!
 
-🔗 why-six-drab.vercel.app
+🔗 why-pi.vercel.app
 📞 [nomor telepon]
 
-#LINETOGEL #TotoOnline #SitusTotoTerpercaya
+#WHY #TotoOnline #SitusTotoTerpercaya
 ```
 
 ---
@@ -186,9 +186,9 @@ Selamat untuk para pemenang! Kemenangan sudah masuk ke saldo akun masing-masing.
 
 Cek pasaran berikutnya di website kami 👇
 
-🔗 why-six-drab.vercel.app
+🔗 why-pi.vercel.app
 
-#HasilPasaran #TotoHariIni #LINETOGEL
+#HasilPasaran #TotoHariIni #WHY
 ```
 
 ---
@@ -204,9 +204,9 @@ Bonus deposit hingga 20% untuk setiap deposit! Tambah modal main Anda tanpa kelu
 
 Klik link di bawah untuk klaim bonus Anda sekarang!
 
-🔗 why-six-drab.vercel.app
+🔗 why-pi.vercel.app
 
-#PromoToto #BonusDeposit #LINETOGEL
+#PromoToto #BonusDeposit #WHY
 ```
 
 ---
@@ -222,10 +222,10 @@ Klik link di bawah untuk klaim bonus Anda sekarang!
 
 Konsistensi adalah kunci kemenangan jangka panjang!
 
-👉 Mulai terapkan tips ini di LINETOGEL:
-🔗 why-six-drab.vercel.app
+👉 Mulai terapkan tips ini di WHY:
+🔗 why-pi.vercel.app
 
-#TipsToto #StrategiMenang #LINETOGEL
+#TipsToto #StrategiMenang #WHY
 ```
 
 ---
@@ -238,24 +238,24 @@ Konsistensi adalah kunci kemenangan jangka panjang!
 
 Ribuan member sudah buktikan sendiri. Sekarang giliran Anda!
 
-🔗 Daftar gratis: why-six-drab.vercel.app
+🔗 Daftar gratis: why-pi.vercel.app
 
-#Testimoni #ReviewToto #LINETOGEL
+#Testimoni #ReviewToto #WHY
 ```
 
 ---
 
 ### Post 6 — Event / Update
 ```
-📢 INFO TERBARU LINETOGEL
+📢 INFO TERBARU WHY
 
 Tambahan pasaran baru! Kini tersedia lebih banyak pilihan pasaran internasional untuk menambah peluang kemenangan Anda.
 
 Cek daftar pasaran lengkap di website kami dan pilih favorit Anda!
 
-🔗 why-six-drab.vercel.app
+🔗 why-pi.vercel.app
 
-#PasaranBaru #UpdateLINETOGEL #TotoOnline
+#PasaranBaru #UpdateWHY #TotoOnline
 ```
 
 ---
@@ -264,13 +264,13 @@ Cek daftar pasaran lengkap di website kami dan pilih favorit Anda!
 
 | Faktor | Status | Catatan |
 |--------|--------|---------|
-| Nama bisnis mengandung keyword | ✅ | "LINETOGEL — Situs Toto Online Terpercaya" |
+| Nama bisnis mengandung keyword | ✅ | "WHY — Situs Toto Online Terpercaya" |
 | Kategori tepat | ✅ | Situs Permainan Online + Layanan Lotere |
 | Deskripsi mengandung keyword | ✅ | "situs toto online terpercaya", "pasaran terlengkap", "bayaran tertinggi" |
-| Website terhubung | ✅ | https://why-six-drab.vercel.app/ |
+| Website terhubung | ✅ | https://why-pi.vercel.app/ |
 | Jam operasional | ✅ | 24 jam, Senin–Minggu |
 | Nomor telepon valid | ⬜ | Isi dengan nomor CS aktif |
-| Foto/logo terupload | ⬜ | Upload logo LINETOGEL + banner |
+| Foto/logo terupload | ⬜ | Upload logo WHY + banner |
 | FAQ diisi | ✅ | 8 pertanyaan dengan keyword |
 | Postingan rutin | ✅ | 6 template posting siap pakai |
 | Review bintang | ⬜ | Ajak member kasih review 5 bintang |
@@ -280,7 +280,7 @@ Cek daftar pasaran lengkap di website kami dan pilih favorit Anda!
 
 ## 📸 MEDIA YANG PERLU DIUPLOAD
 
-1. **Logo LINETOGEL** — Format 1:1 (250×250 px minimum), PNG
+1. **Logo WHY** — Format 1:1 (250×250 px minimum), PNG
 2. **Cover Photo** — Format 16:9 (1024×576 px), tampilkan brand + tagline
 3. **Foto Tambahan (minimal 5):**
    - Screenshot halaman utama website
@@ -293,7 +293,7 @@ Cek daftar pasaran lengkap di website kami dan pilih favorit Anda!
 
 ## 🔗 NAPKIN LINKS (Citation Building)
 
-Daftarkan LINETOGEL di direktori bisnis Indonesia untuk memperkuat local SEO:
+Daftarkan WHY di direktori bisnis Indonesia untuk memperkuat local SEO:
 
 | Direktori | URL |
 |-----------|-----|

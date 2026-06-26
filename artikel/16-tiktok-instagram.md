@@ -1,4 +1,4 @@
-# 📱 10 Script Video Pendek TikTok & Instagram Reels — LINETOGEL
+﻿# 📱 10 Script Video Pendek TikTok & Instagram Reels — WHY
 
 **Format:** Vertikal 9:16 | **Durasi:** 15–30 detik per video  
 **Target:** Viral, engagement tinggi, FYP-ready  
@@ -9,18 +9,18 @@
 
 ## Script 1 — "Sebelum vs Sesudah"
 
-**Hook:** "Lo tau bedanya main di situs abal-abal vs LINETOGEL?"
+**Hook:** "Lo tau bedanya main di situs abal-abal vs WHY?"
 
 **Durasi:** 20 detik
 
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
 | 0–3s | Host tampak frustrasi, lihat HP, geleng-geleng | "Main di situs random: deposit lama, menang gak dibayar…" |
-| 3–6s | Transisi cepat (snap/jump cut), host senyum lebar, tunjuk layar HP | "Main di LINETOGEL: daftar 2 menit, deposit instan, menang langsung cair!" |
-| 6–15s | Screen recording LINETOGEL tampilkan halaman withdraw sukses | "Bayaran tertinggi, pasaran lengkap. Udah ribuan member buktiin." |
+| 3–6s | Transisi cepat (snap/jump cut), host senyum lebar, tunjuk layar HP | "Main di WHY: daftar 2 menit, deposit instan, menang langsung cair!" |
+| 6–15s | Screen recording WHY tampilkan halaman withdraw sukses | "Bayaran tertinggi, pasaran lengkap. Udah ribuan member buktiin." |
 | 15–18s | Host face cam, gestur ajakan | "Mau ngerasain bedanya? Link di bio! 🔥" |
 
-**Caption:** Bedanya langit & bumi 🚀 Main di LINETOGEL, menang di bayar penuh! #LINETOGEL #SitusToto #TotoOnline #MenangBesar
+**Caption:** Bedanya langit & bumi 🚀 Main di WHY, menang di bayar penuh! #WHY #SitusToto #TotoOnline #MenangBesar
 
 ---
 
@@ -33,12 +33,12 @@
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
 | 0–3s | Host tatap kamera, ekspresi kaget/serius | "Gua gak nyangka…" |
-| 3–8s | Screen recording: total kemenangan di dashboard LINETOGEL (blur nominal sebagian) | "Cuma dari deposit 50 ribu, bisa withdraw segini." |
+| 3–8s | Screen recording: total kemenangan di dashboard WHY (blur nominal sebagian) | "Cuma dari deposit 50 ribu, bisa withdraw segini." |
 | 8–12s | Notifikasi transfer masuk di HP | "Gak sampe 5 menit, duitnya udah nyampe rekening." |
-| 12–15s | Kembali ke host, senyum | "Ini baru namanya situs beneran. LINETOGEL." |
+| 12–15s | Kembali ke host, senyum | "Ini baru namanya situs beneran. WHY." |
 | 15–18s | Teks overlay "DAFTAR SEKARANG" + panah ke bio | "Link di bio, cobain sendiri!" |
 
-**Caption:** Dari 50rb bisa jadi berkali lipat 💰 Cuma di LINETOGEL! #LINETOGEL #Cuankah #TotoIndonesia #ReelsViral
+**Caption:** Dari 50rb bisa jadi berkali lipat 💰 Cuma di WHY! #WHY #Cuankah #TotoIndonesia #ReelsViral
 
 ---
 
@@ -51,31 +51,31 @@
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
 | 0–4s | Host lipat tangan, ekspresi skeptis | "Katanya main toto online susah menang? Katanya gak ada yang beneran bayar?" |
-| 4–10s | Kilasan testimoni: screenshot chat member + bukti transfer | "Itu mitos. Di LINETOGEL, setiap hari ada aja member yang withdraw gede." |
+| 4–10s | Kilasan testimoni: screenshot chat member + bukti transfer | "Itu mitos. Di WHY, setiap hari ada aja member yang withdraw gede." |
 | 10–18s | Host jelaskan dengan jari (counting) | "Faktanya: pasaran lengkap, bayaran tertinggi, proses cepet. Yang penting lo main di tempat yang bener." |
 | 18–22s | Close-up host, confident | "Jangan percaya mitos. Buktiin sendiri." |
 | 22–25s | Teks: "DAFTAR GRATIS — Link di Bio" | "Link di bio. Gak daftar, gak bakal tau." |
 
-**Caption:** Mitos ❌ vs Fakta ✅ Main di LINETOGEL beda level! Daftar sekarang link di bio! #MitosVsFakta #LINETOGEL #TotoTerpercaya
+**Caption:** Mitos ❌ vs Fakta ✅ Main di WHY beda level! Daftar sekarang link di bio! #MitosVsFakta #WHY #TotoTerpercaya
 
 ---
 
 ## Script 4 — "Tutorial Kilat"
 
-**Hook:** "Cara daftar LINETOGEL dalam 30 detik!"
+**Hook:** "Cara daftar WHY dalam 30 detik!"
 
 **Durasi:** 30 detik
 
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
-| 0–3s | Host tunjuk kamera | "Lo belum daftar LINETOGEL? Nih gua ajarin. Cepet banget!" |
-| 3–8s | Screen recording: buka browser → klik link di bio → halaman LINETOGEL | "Buka link di bio kita. Sampai di halaman utama." |
+| 0–3s | Host tunjuk kamera | "Lo belum daftar WHY? Nih gua ajarin. Cepet banget!" |
+| 3–8s | Screen recording: buka browser → klik link di bio → halaman WHY | "Buka link di bio kita. Sampai di halaman utama." |
 | 8–15s | Klik DAFTAR → isi form (fast-forward) | "Klik daftar, isi data diri — username, password, nomor HP. <1 menit!" |
 | 15–20s | Klik submit → notifikasi sukses → login | "Submit, langsung login. Akun lo udah aktif." |
 | 20–25s | Halaman deposit → pilih metode bayar | "Tinggal deposit, pilih metode bayar, dan lo udah siap main." |
 | 25–30s | Host kembali | "Simpel kan? Link di bio — daftar sekarang!" |
 
-**Caption:** Tutorial 30 detik ⚡ Daftar LINETOGEL gak pake ribet! #Tutorial #CaraDaftar #LINETOGEL #TotoOnline
+**Caption:** Tutorial 30 detik ⚡ Daftar WHY gak pake ribet! #Tutorial #CaraDaftar #WHY #TotoOnline
 
 ---
 
@@ -88,12 +88,12 @@
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
 | 0–4s | Host on camera, energetic | "Pasaran toto favorit lo apa? Singapore? Hongkong? Sydney?" |
-| 4–12s | Screen recording scrolling daftar pasaran di LINETOGEL | "Di LINETOGEL ada SEMUA. Dari pasaran lokal sampai internasional. Lengkap!" |
+| 4–12s | Screen recording scrolling daftar pasaran di WHY | "Di WHY ada SEMUA. Dari pasaran lokal sampai internasional. Lengkap!" |
 | 12–16s | Highlight beberapa pasaran dengan overlay | "Singapore, HK, Sydney, Macau, Cambodia, dan masih banyak lagi." |
 | 16–19s | Host kembali | "Lo bisa pilih sesuka hati. Gak ada batasan." |
-| 19–22s | Outro text "PASARAN LENGKAP — LINETOGEL" | "Cek pasaran lengkapnya — link di bio!" |
+| 19–22s | Outro text "PASARAN LENGKAP — WHY" | "Cek pasaran lengkapnya — link di bio!" |
 
-**Caption:** Semua pasaran ada di LINETOGEL 🎯 Favorit lo yang mana? Komen di bawah! #PasaranLengkap #LINETOGEL #TotoOnline
+**Caption:** Semua pasaran ada di WHY 🎯 Favorit lo yang mana? Komen di bawah! #PasaranLengkap #WHY #TotoOnline
 
 ---
 
@@ -111,7 +111,7 @@
 | 16–22s | Host kembali | "Ribuan member udah buktiin. Giliran lo kapan?" |
 | 22–28s | Outro dengan link | "Link di bio. Join ribuan member lainnya!" |
 
-**Caption:** Kata mereka sih… 🤔 Cobain sendiri aja deh! Daftar LINETOGEL, link di bio! #Testimoni #LINETOGEL #TotoOnline #ReviewJujur
+**Caption:** Kata mereka sih… 🤔 Cobain sendiri aja deh! Daftar WHY, link di bio! #Testimoni #WHY #TotoOnline #ReviewJujur
 
 ---
 
@@ -124,12 +124,12 @@
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
 | 0–3s | Host bangun tidur (setup), lihat HP | "Morning routine ala player toto." |
-| 3–8s | Buka LINETOGEL di HP → cek hasil pasaran semalam | "Cek hasil pasaran semalam. Siapa tau ada yang tembus." |
+| 3–8s | Buka WHY di HP → cek hasil pasaran semalam | "Cek hasil pasaran semalam. Siapa tau ada yang tembus." |
 | 8–14s | Lihat saldo akun, tersenyum, gesture scroll pasaran | "Liat saldo aman, langsung cek pasaran hari ini. Siap pasang." |
 | 14–18s | Tutup HP, senyum ke kamera | "Gitu doang tiap pagi. Simple, konsisten, cuan." |
 | 18–20s | Quick outro | "Link di bio!" |
 
-**Caption:** Morning routine yang cuan 💸 Gimana rutinitas lo? #DailyRoutine #MorningVibes #LINETOGEL #TotoLife
+**Caption:** Morning routine yang cuan 💸 Gimana rutinitas lo? #DailyRoutine #MorningVibes #WHY #TotoLife
 
 ---
 
@@ -146,7 +146,7 @@
 | 8–13s | Host lebih dekat ke kamera | "Sementara yang lain udah pada cuan, lo masih nunda-nunda." |
 | 13–17s | Teks besar "JANGAN FOMO — JOIN NOW" | "Stop mikir. Start main. Link di bio!" |
 
-**Caption:** Jangan jadi yang terakhir! 🏃‍♂️ Yang lain udah cuan, lo kapan? Daftar di bio! #FOMO #LINETOGEL #JanganNunda #AyoDaftar
+**Caption:** Jangan jadi yang terakhir! 🏃‍♂️ Yang lain udah cuan, lo kapan? Daftar di bio! #FOMO #WHY #JanganNunda #AyoDaftar
 
 ---
 
@@ -158,14 +158,14 @@
 
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
-| 0–3s | Host gesture "psst" (berbisik) | "Mau tau rahasia player pro di LINETOGEL?" |
+| 0–3s | Host gesture "psst" (berbisik) | "Mau tau rahasia player pro di WHY?" |
 | 3–8s | Tampilkan 3 ikon/bullet di layar | "Tiga hal: Satu, mereka gak main semua pasaran — cuma yang mereka kuasai." |
 | 8–13s | Teks overlay "BANKROLL MANAGEMENT" | "Dua, mereka disiplin banget soal bankroll. Ada batas menang, ada batas kalah." |
-| 13–18s | Teks overlay "BONUS & PROMO" | "Tiga, mereka manfaatin semua bonus dan promo di LINETOGEL." |
+| 13–18s | Teks overlay "BONUS & PROMO" | "Tiga, mereka manfaatin semua bonus dan promo di WHY." |
 | 18–22s | Host kembali | "Itu aja. Simpel tapi gak banyak yang sabar jalanin." |
 | 22–25s | Quick outro | "Coba sendiri — link di bio!" |
 
-**Caption:** Bocoran rahasia player pro 🤫 Save dulu, praktik nanti! #RahasiaPro #TipsMenang #LINETOGEL #TotoIndonesia
+**Caption:** Bocoran rahasia player pro 🤫 Save dulu, praktik nanti! #RahasiaPro #TipsMenang #WHY #TotoIndonesia
 
 ---
 
@@ -177,12 +177,12 @@
 
 | Waktu | Visual | Audio/VC |
 |-------|--------|----------|
-| 0–3s | Host tunjuk kamera, tatapan challenge | "Challenge: daftar LINETOGEL hari ini, main dengan strategi, dan liat hasilnya seminggu kemudian." |
+| 0–3s | Host tunjuk kamera, tatapan challenge | "Challenge: daftar WHY hari ini, main dengan strategi, dan liat hasilnya seminggu kemudian." |
 | 3–9s | Screen recording singkat: proses daftar + pilih pasaran + submit taruhan | "Daftar pake link di bio, deposit kecil dulu. Cobain satu pasaran aja." |
 | 9–15s | Host gesture "deal?" | "Catat semua taruhan lo selama seminggu. Komen di video ini hasilnya gimana." |
 | 15–20s | Outro teks "CHALLENGE ACCEPTED?" | "Deal? Link di bio. Gas!" |
 
-**Caption:** Challenge 7 hari! 🗓️ Siapa berani? Drop hasil lo di komen minggu depan! #Challenge #LINETOGEL #7DaysChallenge #TotoChallenge
+**Caption:** Challenge 7 hari! 🗓️ Siapa berani? Drop hasil lo di komen minggu depan! #Challenge #WHY #7DaysChallenge #TotoChallenge
 
 ---
 
@@ -196,8 +196,8 @@
 | **Frame Rate** | 30fps atau 60fps |
 | **Music/Sound** | Gunakan sound yang lagi trending di TikTok/Reels |
 | **Teks Overlay** | Font tebal, kontras tinggi, mudah dibaca di mobile |
-| **Caption** | 3–5 hashtag, mention @linetogelofficial, call-to-action |
-| **Link** | Taruh link https://why-six-drab.vercel.app/ di bio + di komen pin |
+| **Caption** | 3–5 hashtag, mention @whyofficial, call-to-action |
+| **Link** | Taruh link https://why-pi.vercel.app/ di bio + di komen pin |
 
 ### Jadwal Posting Ideal
 

@@ -1,4 +1,4 @@
-# 📅 Kalender Konten 30 Hari — LINETOGEL
+﻿# 📅 Kalender Konten 30 Hari — WHY
 
 **Periode:** 30 Hari  
 **Platform:** Medium, Blogger, Telegram, TikTok, Instagram, Twitter/X, Facebook  
@@ -31,7 +31,7 @@
 |-------|----------|--------|--------|
 | 07:00 | Telegram | Tips Harian | Tips fokus satu pasaran (Post 7) |
 | 08:00 | Twitter/X | Motivasi Senin | "Minggu baru, peluang baru! 🎯" + link |
-| 09:00 | TikTok | Video #1 | "Sebelum vs Sesudah" — main di situs abal-abal vs LINETOGEL |
+| 09:00 | TikTok | Video #1 | "Sebelum vs Sesudah" — main di situs abal-abal vs WHY |
 | 10:00 | Instagram | Reels #1 | Sama dengan TikTok, cross-post |
 | 12:00 | Facebook | Post Engagement | "Siapa yang udah pasang target minggu ini? Tulis di komen!" |
 | 13:30 | Telegram | Hasil Sydney | Update result Sydney |
@@ -85,7 +85,7 @@
 |-------|----------|--------|--------|
 | 07:00 | Telegram | Tips Harian | Tips jangan kejar kekalahan (Post 10) |
 | 08:00 | Twitter/X | Thread Tips | Thread 5 tweet tentang mental player |
-| 09:00 | TikTok | Video #4 | "Tutorial Kilat" — cara daftar LINETOGEL 30 detik |
+| 09:00 | TikTok | Video #4 | "Tutorial Kilat" — cara daftar WHY 30 detik |
 | 10:00 | **Medium** | Artikel Baru | Post artikel "Pasaran Toto Terlengkap" (04) atau artikel baru |
 | 10:30 | Twitter/X | Share Medium | Tweet + pin tweet ke artikel |
 | 11:00 | Facebook | Share Medium | Cross-post artikel |
@@ -104,9 +104,9 @@
 |-------|----------|--------|--------|
 | 07:00 | Telegram | Tips Harian | Tips manfaatkan bonus (Post 11) |
 | 08:00 | Twitter/X | Weekend Hype | "Weekend udah di depan! Siap pasang?" |
-| 09:00 | TikTok | Video #5 | "Pasaran Favorit" — tunjukkan semua pasaran LINETOGEL |
+| 09:00 | TikTok | Video #5 | "Pasaran Favorit" — tunjukkan semua pasaran WHY |
 | 10:00 | Instagram | Feed Carousel | 5 slide: tips weekend + ajakan daftar |
-| 12:00 | Facebook | Weekend Post | "Weekend plan: main toto santai di LINETOGEL" |
+| 12:00 | Facebook | Weekend Post | "Weekend plan: main toto santai di WHY" |
 | 13:30 | Telegram | Hasil Sydney | Update result |
 | 15:00 | Twitter/X | Fun Fact | "Tahukah lo? Pasaran Sydney udah ada sejak..." |
 | 17:30 | Telegram | Hasil Singapore | Update result |
@@ -129,7 +129,7 @@
 | 12:00 | Instagram | Reels #6 | "Testimoni Member" cross-post |
 | 13:30 | Telegram | Hasil Sydney | Update result |
 | 17:30 | Telegram | Hasil Singapore | Update result |
-| 19:00 | Telegram | Ajakan Daftar | Post 18: Why LINETOGEL |
+| 19:00 | Telegram | Ajakan Daftar | Post 18: Why WHY |
 | 20:00 | Twitter/X | Thread Review | Cerita testimoni member + ajakan join |
 | 22:30 | Telegram | Hasil Hongkong | Update result |
 
@@ -216,7 +216,7 @@
 | 09:00 | Instagram | Reels Remix | Remix video TikTok terbaik minggu lalu |
 | 10:00 | **Medium** | Artikel Baru | Post "Deposit Murah Toto" (07) atau artikel baru |
 | 11:00 | Twitter/X | Share Medium | Tweet artikel |
-| 12:00 | Facebook | Info Post | "5 metode deposit di LINETOGEL" |
+| 12:00 | Facebook | Info Post | "5 metode deposit di WHY" |
 | 13:30 | Telegram | Hasil Sydney | Update result |
 | 17:30 | Telegram | Hasil Singapore | Update result |
 | 19:00 | Telegram | Promo | Post 16: Referral bonus |
@@ -252,7 +252,7 @@
 | 12:00 | Facebook | Share + Discussion | Share artikel + tanya pendapat |
 | 13:30 | Telegram | Hasil Sydney | Update result |
 | 17:30 | Telegram | Hasil Singapore | Update result |
-| 19:00 | Telegram | Ajakan Daftar | Why LINETOGEL (variasi Post 18) |
+| 19:00 | Telegram | Ajakan Daftar | Why WHY (variasi Post 18) |
 | 22:30 | Telegram | Hasil Hongkong | Update result |
 
 ---
@@ -280,7 +280,7 @@
 
 | Hari | Platform | Highlight Konten |
 |------|----------|------------------|
-| **15 (Sen)** | Semua | Tips: Manajemen emosi saat main. TikTok video baru "Behind the Scenes" LINETOGEL. Refresh semua tips harian Telegram. |
+| **15 (Sen)** | Semua | Tips: Manajemen emosi saat main. TikTok video baru "Behind the Scenes" WHY. Refresh semua tips harian Telegram. |
 | **16 (Sel)** | Semua + Medium | Artikel baru Medium. TikTok recycle video terbaik dengan hook berbeda. Twitter/X buat thread edukasi. |
 | **17 (Rab)** | Semua + Blogger | Artikel baru Blogger. Instagram Story Q&A session tentang toto online. |
 | **18 (Kam)** | Semua + Medium | Artikel Medium baru. TikTok "Reaksi" — host reaksi lihat hasil pasaran live. |
@@ -300,7 +300,7 @@
 | **23 (Sel)** | Semua + Medium | Artikel Medium baru (artikel pillar panjang). Twitter/X buat polling evaluasi. |
 | **24 (Rab)** | Semua + Blogger | Artikel Blogger baru. Instagram live Q&A 15 menit. |
 | **25 (Kam)** | Semua + Medium | Artikel Medium baru. TikTok "Reaction to member wins". |
-| **26 (Jum)** | Semua | Push promosi besar. Telegram blast semua bonus. Twitter/X thread "Cuan di LINETOGEL". |
+| **26 (Jum)** | Semua | Push promosi besar. Telegram blast semua bonus. Twitter/X thread "Cuan di WHY". |
 | **27 (Sab)** | Semua + Blogger | Artikel terakhir bulan ini. TikTok "Monthly recap challenge". |
 | **28 (Ming)** | Semua | Review performa sebulan. Tele umumkan pemenang bulanan. Engagement post "Target bulan depan?" |
 | **29 (Sen)** | Semua | Tips: Mulai bulan baru dengan strategi baru. TikTok "Reset & Restart". |
@@ -318,7 +318,7 @@
 
 [Isi konten 50-100 kata]
 
-🔗 Daftar: https://why-six-drab.vercel.app/
+🔗 Daftar: https://why-pi.vercel.app/
 #[Hashtag1] #[Hashtag2] #[Hashtag3]
 ```
 
@@ -329,9 +329,9 @@
 💡 Tips Toto hari ini: [isi tips 1-2 kalimat]
 
 Pelajari lebih lanjut 👇
-why-six-drab.vercel.app
+why-pi.vercel.app
 
-#LINETOGEL #TipsToto
+#WHY #TipsToto
 ```
 
 **Template Promo:**
@@ -341,9 +341,9 @@ why-six-drab.vercel.app
 [Deskripsi singkat, highlight benefit]
 
 Daftar sekarang 👇
-why-six-drab.vercel.app
+why-pi.vercel.app
 
-#Promo #LINETOGEL
+#Promo #WHY
 ```
 
 **Template Engagement:**
@@ -352,7 +352,7 @@ why-six-drab.vercel.app
 
 Reply di bawah! 👇
 
-#LINETOGEL #TotoCommunity
+#WHY #TotoCommunity
 ```
 
 ### Instagram Post Types

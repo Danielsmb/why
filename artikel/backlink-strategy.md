@@ -1,11 +1,11 @@
-# Backlink Strategy & Link Building — LINETOGEL
+﻿# Backlink Strategy & Link Building — WHY
 
 ## Platform Gratis (COPY-PASTE READY)
 
 ### 1. Medium.com
 - Buat akun Medium gratis
 - Post artikel `01-panduan-situs-toto-terpercaya.md`
-- Jangan terlalu banyak link — 2-3 link natural ke why-six-drab.vercel.app
+- Jangan terlalu banyak link — 2-3 link natural ke why-pi.vercel.app
 
 ### 2. Blogger.com (Blogspot)
 - Buat blog baru dengan domain mengandung kata kunci
@@ -17,8 +17,8 @@
 - Post artikel yang sama dengan sedikit modifikasi biar gak duplicate
 
 ### 4. Sosial Media Profiles
-- Twitter/X: buat akun @linetogel, bio → link ke https://why-six-drab.vercel.app
-- Facebook Page: buat halaman LINETOGEL, isi website
+- Twitter/X: buat akun @why, bio → link ke https://why-pi.vercel.app
+- Facebook Page: buat halaman WHY, isi website
 - Instagram: bio link
 - TikTok: bio link
 - Pinterest: buat pin yang link ke landing page
@@ -39,7 +39,7 @@
 
 ## Backlink Tier Structure
 ```
-Tier 1 (Langsung ke why-six-drab.vercel.app):
+Tier 1 (Langsung ke why-pi.vercel.app):
   - Medium, Blogger, WordPress.com, Sosial Media
 
 Tier 2 (Link ke Tier 1):
